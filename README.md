@@ -1,1 +1,0 @@
-# SpartanaeAAG.github.io
